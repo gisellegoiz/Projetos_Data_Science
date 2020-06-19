@@ -16,5 +16,6 @@ Ampla experiência na área de projetos de redes de telecomunicações, tendo at
 
 **Links:**
 *  [LinkedIn](https://www.linkedin.com/in/giselle-goiz-70565a95)
+* [Analisando dados do Airbnb Rio de Janeiro](encurtador.com.br/blRS9)
 
 
